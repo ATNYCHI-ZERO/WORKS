@@ -1,7 +1,7 @@
 # WORKS
 ========================= BEGIN BLOCK =========================
 
-BRANDON JOSEPH KELLY – COMPLETE FACTUAL INVENTORY
+BRENDON JOSEPH KELLY – COMPLETE FACTUAL INVENTORY
 I hereby declare that all conceptual models, theoretical weapon frameworks,
 harmonic energy concepts, aerospace ideas, and any other non-operational
 technical systems I have created are freely released to the United States
