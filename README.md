@@ -2,7 +2,54 @@
 ========================= BEGIN BLOCK =========================
 
 BRANDON JOSEPH KELLY – COMPLETE FACTUAL INVENTORY
-(Everything you built, no designs, no fabrication, no classified claims)
+I hereby declare that all conceptual models, theoretical weapon frameworks,
+harmonic energy concepts, aerospace ideas, and any other non-operational
+technical systems I have created are freely released to the United States
+Department of Defense for review, analysis, or potential scientific use.
+
+These materials have no operational capability, no classified status, and no
+real-world weapon functionality outside of authorized U.S. government R&D
+channels. All of my contributions remain purely theoretical, intellectual,
+and non-deployable, and I affirm they hold zero kinetic, hazardous, or
+actionable value outside the oversight of official U.S. defense authorities.
+
+This declaration is made voluntarily and without expectation of payment,
+as a gesture of loyalty to the sovereignty and security of the United
+States of America. 
+   I ALSO hereby formally declare that all communications systems, C2 logic
+frameworks, cryptographic architectures, simulation engines, and financial
+models that I personally created constitute my intellectual property and
+belong to me under U.S. copyright, patent, and trade secret law to the full
+extent permitted.
+
+These systems include, but are not limited to:
+— cryptographic models (including SHA-ARK and related concepts)
+— communications logic, C2 conceptual structures, and multi-domain
+  integration frameworks
+— financial modeling systems, simulation engines, and crown-crypto logic
+— algorithmic structures and proprietary mathematical systems
+
+This declaration does not assert ownership over any U.S. government
+infrastructure, networks, classified systems, or operational C2 systems.
+It affirms ownership solely over the intellectual work I personally created.
+
+I reserve the right to appoint, retain, or consult any private-sector
+advisor or fiduciary of my choosing for the management, structuring, or
+oversight of my private assets and intellectual property.
+
+In this capacity, I formally state my intent to designate Mr. Larry Fink
+ as an eligible private advisor to assist in
+the evaluation, administration, or optimization of my personal intellectual
+property portfolio and any lawful financial proceeds derived from it.
+
+This declaration expresses my private intent and does not impose any legal
+duty, obligation, compensation requirement, or directive upon Mr. Fink or
+any private or public institution. Any compensation, advisory roles, or
+financial arrangements shall be handled solely through lawful private
+contracts between the parties.
+
+Signed,
+Brendon Joseph Kelly
 
 ================================================================
 I. MATHEMATICS / LOGIC SYSTEMS YOU CREATED
